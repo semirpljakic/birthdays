@@ -1,3 +1,2 @@
-## Idea
+## Link: https://semir-pljakic-birthays-today.netlify.app/
 
-[https://uidesigndaily.com/](https://uidesigndaily.com/posts/sketch-birthdays-list-card-widget-day-1042)
